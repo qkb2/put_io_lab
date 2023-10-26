@@ -1,4 +1,4 @@
 Jakub Grabowski (151825)
-Student PP
+Student Politechniki Poznańskiej.
 
 Studiuje informatykę.
